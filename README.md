@@ -1,0 +1,1 @@
+So hey everyone today as you know guys i will be teaching you how to make a egg omlet which is obviously very easy to make and trust me guys it will be really delicious. So we can even make many dishes using like bread-omlet etc. Now without wasting time lets get started.
